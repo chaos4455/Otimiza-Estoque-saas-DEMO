@@ -29,8 +29,6 @@
 
 ![chrome_pFYa8mmtlQ](https://github.com/user-attachments/assets/ba296f8d-06d0-4ecc-b9f2-c30ab95d6099)
 
-![chrome_QoWjOPQNus](https://github.com/user-attachments/assets/8777e5bf-6e1f-48d3-ac44-75773398ca47)
-
 ![chrome_o6Dl4hFnT9](https://github.com/user-attachments/assets/42373f65-1013-4e40-ba5a-0639029b082c)
 
 ![chrome_vBKDb9Hmux](https://github.com/user-attachments/assets/75f9c6b4-e7f7-4293-9a66-5ab320dbbf4e)
